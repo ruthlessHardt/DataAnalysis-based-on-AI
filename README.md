@@ -1,3 +1,4 @@
 # DataAnalysis-based-on-AI
 data analysis
-Preparing..........
+Preparing
+I just want to   emmmm......wait some time
